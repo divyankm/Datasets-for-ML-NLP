@@ -1,1 +1,0 @@
-# Women-Shopping-Reviews-NLP
